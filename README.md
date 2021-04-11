@@ -12,7 +12,7 @@
 
 第二卷（#7 - #12）墓魔（Graves），Hal在n52把自己从正联开除的因果。一样充满名梗，不给蝙蝠侠打伞，Hal说Bruce“cuddly”，Barry劝架被两个人一起吼，大型迫害Ollie现场，Arthur说“是只有我，还是蝙蝠侠说话越来越像灯侠了？”~~（建议屏幕前的各位好好学习这种磕CP的精神）~~。
 
-![img](01.png)
+![img](01.jpg)
 
 两个名梗。#23，“But you’re **NO** Hal Jordan”。#39，Hal被Barry从Oa叫回来，第一句话先问蝙蝠侠在哪儿。
 
