@@ -64,7 +64,7 @@ Hal成为幽灵宿主。可以理解为姐夫让Hal起死回生的第一步。
 
 ![img](08.jpg)
 
-### [JLA/Spectre Soul War (2003)](JLA/Specture Soul War)
+### [JLA/Spectre Soul War (2003)](https://getcomics.info/dc/jla-spectre-soul-war-1-2-2003/)
 
 JLA与幽灵Hal的合作，Bruce在暮光之后第一次对Hal持一种还算和善的态度。
 
