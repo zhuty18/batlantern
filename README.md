@@ -64,6 +64,16 @@ Hal成为幽灵宿主。可以理解为姐夫让Hal起死回生的第一步。
 
 ![img](08.jpg)
 
+### [The Spectre (2001 - 2003)](https://getcomics.info/dc/the-spectre-vol-4-1-27/)
+
+Bruce与Clark在#2-#4中登场。**这本没有高清资源，画面灰蒙蒙的，所以不建议新人阅读。**
+
+Bruce这边，简单来说是一个他接受Hal从“死”到“回来了”的过程。
+
+![](23.jpg)
+
+![](24.jpg)
+
 ### [JLA/Spectre Soul War (2003)](https://getcomics.info/dc/jla-spectre-soul-war-1-2-2003/)
 
 JLA与幽灵Hal的合作，Bruce在暮光之后第一次对Hal持一种还算和善的态度。
@@ -104,6 +114,16 @@ JLA与幽灵Hal的合作，Bruce在暮光之后第一次对Hal持一种还算和
 
 这一刊里Bruce戴了Hal的戒指，~~变了一堆蝙蝠，~~看到了父母。这让赛战时他拒绝黄灯戒指变得容易了一些。
 
+（至白之日内）#62，Hal拒绝正联的帮助，和七灯（主要问题在于红橙黄）组队。
+
+![](20.jpg)
+
+### [Infinite Crisis (2005 - 2006)](https://getcomics.info/dc/infinite-crisis-tie-ins-collection-2005-2006/)
+
+共七刊，在#6中，Bruce放弃兄弟眼，选择相信人，而在他做出这个决定之后，第一个出现的人是Hal。
+
+![](21.jpg)
+
 ### [Blackest Night (2009 - 2010)](https://getcomics.info/dc/blackest-night-complete-order-extras/)
 
 至黑主刊#00，Hal在Bruce墓前和Barry碰面。
@@ -111,6 +131,12 @@ JLA与幽灵Hal的合作，Bruce在暮光之后第一次对Hal持一种还算和
 ![](14.jpg)
 
 ------
+
+### [Superman/Batman (2003 - 2011)](https://getcomics.info/dc/superman-batman-1-87-annual/)
+
+Hal登场在#29，~~我觉得有点剧情工具人的意思，~~他主要是和超人互动，不过有个被Bruce抓领子的画面。
+
+![](22.jpg)
 
 ### [Justice League of America (2007 - 2012)](https://getcomics.info/dc/justice-league-of-america-vol-1-10/)
 
