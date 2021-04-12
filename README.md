@@ -8,21 +8,23 @@
 
 第一卷（#1 - #6）n52正联起源，动画电影《正义联盟：战争》~~（和ZSJL）~~的改编基础。著名的摘戒指、仓鼠球、摘面罩、“Who the hell is Bruce Wayne”均出自这一段。
 
-![img](00.jpg)
+![](00.jpg)
 
 第二卷（#7 - #12）墓魔（Graves），Hal在n52把自己从正联开除的因果。一样充满名梗，不给蝙蝠侠打伞，Hal说Bruce“cuddly”，Barry劝架被两个人一起吼，大型迫害Ollie现场，Arthur说“是只有我，还是蝙蝠侠说话越来越像灯侠了？”~~（建议屏幕前的各位好好学习这种磕CP的精神）~~。
 
-![img](01.jpg)
+![](01.jpg)
 
 两个名梗。#23，“But you’re **NO** Hal Jordan”。#39，Hal被Barry从Oa叫回来，第一句话先问蝙蝠侠在哪儿。
 
 ![](25.jpg)
 
+![](26.jpg)
+
 第七卷（#40 - #44）和第八卷（#45 - #50）是达克赛德战争，坐椅子戴戒指的剧情都出自这里。人生一世，能看到几次蝙蝠侠认错呢？
 
-![img](02.jpg)
+![](02.jpg)
 
-![img](03.jpg)
+![](03.jpg)
 
 ## [Batman: Universe (2019)](https://getcomics.info/dc/batman-universe-1-6-2019/)
 
@@ -30,13 +32,13 @@
 
 恐龙岛约会和西部世界情侣装，名台词“你从来没去过我家”。
 
-![img](04.jpg)
+![](04.jpg)
 
 ## [Green Lantern 80th Anniversary (2020)](https://getcomics.info/dc/green-lantern-80th-anniversary-100-page-super-spectacular-1-2020/)
 
 p12 - p18，Hal的个人故事《Last Will》。Hal以为自己要死了，灯戒只能再发三条消息，第一条发给绿灯军团，第二条发给Bruce，第三条发给了Carol。
 
-![img](05.jpg)
+![](05.jpg)
 
 “你让我直面我的缺陷，我的恐惧。谢谢你教会我谦逊，Bruce。”
 
@@ -44,7 +46,7 @@ p12 - p18，Hal的个人故事《Last Will》。Hal以为自己要死了，灯�
 
 Hal和Bruce（和Kara）的合作，#1 - #6。两个人主要的互动在#1，在拉斯维加斯打21点，性格差异极其鲜明。~~虽然Bruce的瞳色上错了~~
 
-![img](06.jpg)
+![](06.jpg)
 
 ## 1994-2011
 
@@ -58,13 +60,13 @@ Hal和Bruce（和Kara）的合作，#1 - #6。两个人主要的互动在#1，�
 
 Hal牺牲自己重燃太阳。高虐，所有Hal相关的情节都高虐。如果你喜欢Hal Jordan你一定会哭。就算你看主线不哭，看绿灯v3#64（Hal想变回绿灯侠）和#81（Hal葬礼）怎么也得哭出来。
 
-![img](07.jpg)
+![](07.jpg)
 
 ### [Day of Judgment (1999)](https://getcomics.info/dc/day-of-judgement-1-5-secret-files-origins-1/)
 
 Hal成为幽灵宿主。可以理解为姐夫让Hal起死回生的第一步。
 
-![img](08.jpg)
+![](08.jpg)
 
 ### [The Spectre (2001 - 2003)](https://getcomics.info/dc/the-spectre-vol-4-1-27/)
 
@@ -80,11 +82,11 @@ Bruce这边，简单来说是一个他接受Hal从“死”到“回来了”的
 
 JLA与幽灵Hal的合作，Bruce在暮光之后第一次对Hal持一种还算和善的态度。
 
-![img](09.jpg)
+![](09.jpg)
 
 下面两页出自Green Lantern Vol 3 (1990 - 2004) #1，Hal造访JLA。
 
-![img](10.jpg)
+![](10.jpg)
 
 ![](11.jpg)
 
@@ -144,7 +146,7 @@ Hal登场在#29，~~我觉得有点剧情工具人的意思，~~他主要是和�
 
 是群像刊，角色特别多。Hal大部分时候在和Ollie、Roy、Dinah、Wally相处，和Bruce的互动并不太多，但毕竟2.6个G下来，有心磕总是有粮的。
 
-![img](15.jpg)
+![](15.jpg)
 
 第三卷开头有Hal管Bruce借（要？）钱，$3600，为了Ollie的单身派对。
 
@@ -158,7 +160,7 @@ Hal登场在#29，~~我觉得有点剧情工具人的意思，~~他主要是和�
 
 这个是DCUO游戏的漫画，Bruce和Hal相处的剧情在#21。
 
-![img](17.jpg)
+![](17.jpg)
 
 ## [Batman - The Brave and the Bold (2009 - 2010)](https://getcomics.info/dc/batman-the-brave-and-the-bold-1-22-2009-2010/)
 
