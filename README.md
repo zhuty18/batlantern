@@ -148,7 +148,7 @@ Hal登场在#29，~~我觉得有点剧情工具人的意思，~~他主要是和�
 
 ![](15.jpg)
 
-第三卷开头有Hal管Bruce借（要？）钱，$3600，为了Ollie的单身派对。
+第三卷开头（箭雀婚礼的JLA特刊）有Hal管Bruce借（要？）钱，$3600，为了Ollie的单身派对。
 
 ### [Cry For Justice (2009 - 2010)](https://getcomics.info/dc/justice-league-cry-justice/)
 
